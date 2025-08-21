@@ -1,2 +1,9 @@
 
-[3-1 LED闪烁.zip](https://github.com/user-attachments/files/17308454/3-1.LED.zip)
+[中国机器人与人工智能大赛省三获奖证书.pdf](https://github.com/user-attachments/files/21912589/default.pdf)
+[研究生报考服务系统.pdf](https://github.com/user-attachments/files/21912587/default.pdf)
+[竞赛奖学金论文软著专利.pdf](https://github.com/user-attachments/files/21912584/default.pdf)
+[基本信息表_v3.0.pdf](https://github.com/user-attachments/files/21912583/_v3.0.pdf)
+[个人简历_v3.0.pdf](https://github.com/user-attachments/files/21912581/_v3.0.pdf)
+[附件6_CET4_525.pdf](https://github.com/user-attachments/files/21912580/6_CET4_525.pdf)
+[本科成绩单.pdf](https://github.com/user-attachments/files/21912579/default.pdf)
+[CET6_478.pdf](https://github.com/user-attachments/files/21912577/CET6_478.pdf)
