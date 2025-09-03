@@ -10,3 +10,4 @@
 [夏令营PPT_v5.1.pptx](https://github.com/user-attachments/files/21913207/PPT_v5.1.pptx)
 [夏令营PPT_v5.1 (1).pdf](https://github.com/user-attachments/files/21913205/PPT_v5.1.1.pdf)
 [省创立项名单_4.pdf](https://github.com/user-attachments/files/21913193/_4.pdf)
+[证明材料-林嘉鑫-济南大学.pdf](https://github.com/user-attachments/files/22109724/-.-.pdf)
