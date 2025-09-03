@@ -13,3 +13,4 @@
 T6_478.pdf](https://github.com/user-attachments/files/22109849/CET6_478.pdf)
 f](https://github.com/user-attachments/files/21913193/_4.pdf)
 [证明材料-林嘉鑫-济南大学.pdf](https://github.com/user-attachments/files/22109724/-.-.pdf)
+[同济计算机申请表.pdf](https://github.com/user-attachments/files/22112397/default.pdf)
