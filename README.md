@@ -13,3 +13,6 @@
 [同济计算机申请表.pdf](https://github.com/user-attachments/files/22112397/default.pdf)
 [120-4.pdf](https://github.com/user-attachments/files/22328784/120-4.pdf)
 [4-3.pdf](https://github.com/user-attachments/files/22328787/4-3.pdf)
+[db4848c9-09f6-4d4c-a3e4-7235e56c4f50(1).pdf](https://github.com/user-attachments/files/22735222/db4848c9-09f6-4d4c-a3e4-7235e56c4f50.1.pdf)
+[25312000000215255299_林嘉鑫(1).pdf](https://github.com/user-attachments/files/22735221/25312000000215255299_.1.pdf)
+[25312000000215234433_林嘉鑫(1).pdf](https://github.com/user-attachments/files/22735219/25312000000215234433_.1.pdf)
