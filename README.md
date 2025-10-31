@@ -16,3 +16,5 @@
 [db4848c9-09f6-4d4c-a3e4-7235e56c4f50(1).pdf](https://github.com/user-attachments/files/22735222/db4848c9-09f6-4d4c-a3e4-7235e56c4f50.1.pdf)
 [25312000000215255299_林嘉鑫(1).pdf](https://github.com/user-attachments/files/22735221/25312000000215255299_.1.pdf)
 [25312000000215234433_林嘉鑫(1).pdf](https://github.com/user-attachments/files/22735219/25312000000215234433_.1.pdf)
+[1-济南大学信息科学与工程学院校外实训与创新实习申请审批表（校内题目校外完成）.docx](https://github.com/user-attachments/files/23251073/1-.docx)
+[2-济南大学信息科学与工程学院校外综合实习申请审批表（校内题目校外完成）.docx](https://github.com/user-attachments/files/23251075/2-.docx)
