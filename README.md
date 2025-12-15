@@ -6,3 +6,4 @@
 [WR-48-v1.0-251130.docx](https://github.com/user-attachments/files/23872519/WR-48-v1.0-251130.docx)
 [Uploading WR-48-v1.0-251130.docx…]()
 [WeeklyReport-49-v1.0-251207.docx](https://github.com/user-attachments/files/24055952/WeeklyReport-49-v1.0-251207.docx)
+[WeeklyReport-50-v1.0-251214.docx](https://github.com/user-attachments/files/24164187/WeeklyReport-50-v1.0-251214.docx)
